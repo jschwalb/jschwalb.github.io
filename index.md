@@ -9,3 +9,5 @@ In the 1960s, a young woman nicknamed Babydoll is institutionalized by her abusi
 * good dancer
 * dreamer
 * looks great in a schoolgirl uniform
+
+> This was never my story. It's yours. Now, don't screw it up, okay?
