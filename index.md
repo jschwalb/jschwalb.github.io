@@ -11,3 +11,5 @@ In the 1960s, a young woman nicknamed Babydoll is institutionalized by her abusi
 * looks great in a schoolgirl uniform
 
 > This was never my story. It's yours. Now, don't screw it up, okay?
+
+<img src="https://i.pinimg.com/originals/c1/35/49/c1354968ab63ac4da612d2e0e67f3ef5.jpg"/>
